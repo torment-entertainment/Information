@@ -1,4 +1,4 @@
-# Torment Entertainment Studios
+# Torment Entertainment
 
 -   Kevin Karsopawiro
 -   Justin Karsopawiro
